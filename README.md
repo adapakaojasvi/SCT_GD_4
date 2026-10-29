@@ -1,4 +1,4 @@
-
+SkillCraft Technology – Magazine Design Concept
 
 INTRODUCTION
 
